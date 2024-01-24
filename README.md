@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Gabss-S 📍
+## Bem-vindo(a) ao perfil da Gabss-S 🔳▪️▫️
 
  <div>
    <a href="https://github.com/Gabss-S">
